@@ -78,5 +78,5 @@ Ultimate Solopreneur Guide https://ascottperry.substack.com/p/how-to-succeed-doi
 
 Takes Notes from This
 
----
+
 
