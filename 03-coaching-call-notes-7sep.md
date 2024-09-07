@@ -53,8 +53,6 @@ https://open.substack.com/pub/ascottperry/p/how-to-succeed-doing-work-that-matte
 - Where is all your money being spent. Also where my current time is being spent.
 - What are the resource you think of: time is what we usually consider. identity, reputation, energy and effort also matter
 - Think: where am I spending my time attention and effort?
-- https://docs.google.com/document/d/1RClCppEqqbnzGuPEJUaJFNkY5JzCQ6BIUAxo8P6t3LE/edit?usp=sharing
-https://open.substack.com/pub/ascottperry/p/how-to-succeed-doing-work-that-matters?r=nsqgj&utm_campaign=post&utm_medium=web
 - Think a little bit more ... you should be doing something that aligns with your personality, preferences, skills, talents.
 - What do I want my average week to look like?
 - What are the things that I have an instinct, an intuition for ... I could do this thing ... it excites me so that I want to try it. Who are the people I know and trust ... and you would be excited to work with that people ... can I get more specific around the initial problem 
@@ -63,7 +61,22 @@ https://open.substack.com/pub/ascottperry/p/how-to-succeed-doing-work-that-matte
    - 1. clear enough definition of what you want
      2. clear enough definiiton of what you're starying wih
      3. two or three things that get you from where you want to be
+- Read Bumpers
+- Read The Ultimate Solopreneur Guide
 
 For Scott it's about taking care of Jasper at a certain time of day
 
 Anything that you do, do with a reserve clause ... you are making decisions basd on who you are now ... leave some wiggle room. Leave space for serendipity.
+
+---
+
+Download Bumpers https://www.freebumpersbook.com/
+
+Bumpers Accelerator https://nicpeterson.substack.com/p/bumpers-accelerator
+
+Ultimate Solopreneur Guide https://ascottperry.substack.com/p/how-to-succeed-doing-work-that-matters?r=nsqgj&utm_campaign=post&utm_medium=web&triedRedirect=true
+
+Takes Notes from This
+
+---
+
