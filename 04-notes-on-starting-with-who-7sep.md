@@ -103,6 +103,8 @@ The antidote to that is consideration. What if you didn't have to understand or 
 
 Harvard Business Review: teaching smart people to learn.
 
+https://hbr.org/1991/05/teaching-smart-people-how-to-learn
+
 DALA - directions for acting like an adult.
 
 If your actions are not reflecting your attentions then you're not acting like an adult.
